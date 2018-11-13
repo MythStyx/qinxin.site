@@ -1,2 +1,0 @@
-# qinxin.site
-qinxin.site
